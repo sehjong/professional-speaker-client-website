@@ -11,7 +11,7 @@ John Ndungi is a dynamic and charismatic speaker, corporate trainer, and life co
 
 My process as a consultant begins with an understanding of where my clients are coming from, what their business needs and goals are, their budget, and what they envision for their online presence and brand.
 
-The discussion involves careful planning to set and align expectations to pinpoint what the project is all about.
+The discussion involves careful planning to set and align expectations and pinpoint what the project is all about.
 
 Once decided, a proposal followed by a contract outlining the project are signed.
 
