@@ -1,5 +1,5 @@
 # Professional Speaker Client Website
-John Ndungi is a dynamic and charismatic speaker, corporate trainer, and life coach.
+A dynamic and charismatic speaker, corporate trainer, and life coach.
 
 <img width="1105" alt="professional-speaker-client-website" src="https://user-images.githubusercontent.com/103136497/221710982-5a213f94-ee80-42ac-b4f8-b7b9d7382531.png">
 
